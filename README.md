@@ -36,3 +36,9 @@ We hope we built a good Kahoot Booter!
 2. First, open and read **`Readmefirst.md`**.
 3. Then, read **`tutorial.md`**.
 4. Otherwise, you won't know what to do—especially since the program is in **German** and you might not understand it without the guide!
+HERE IF YOU WANT TO ASK US SOMETHING: kahootboter@gmail.com
+only report bugs or ask something we reply every time in like 1Hour - 1day!
+not every time we can answer if you put any random you get ignored!
+in the exe is a other email!
+do not use that email u can but the kahootboter@gmail.com
+is more online.
