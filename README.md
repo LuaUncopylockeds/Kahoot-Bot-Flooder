@@ -42,3 +42,4 @@ not every time we can answer if you put any random you get ignored!
 in the exe is a other email!
 do not use that email u can but the kahootboter@gmail.com
 is more online.
+youtube account: https://www.youtube.com/@WorldWideTrustedDownloads
