@@ -21,7 +21,7 @@ We hope we built a good Kahoot Booter!
 # 🚀 Official Download Release
 
 * **Feedback:** Please let us know if everything is working fine for you!
-* **Contact Us:** Reach out via email at **leorobloxleorobloxo@gmail.com**.
+* **Contact Us:** Reach out via email at **kahootboter@gmail.com**.
 * **Rules:** Never spam us, or we will ban you from our platform.
 
 ---
